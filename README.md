@@ -1,2 +1,0 @@
-# TrendyTechVal
-moda
